@@ -1,6 +1,6 @@
 # 附錄　各種呼吸法
 
-這些方法的教學影音和更多資訊，都可在 mrjamesnestor.com/breath 找到。
+這些方法的教學影音和更多資訊，都可在 www.mrjamesnestor.com/breath 找到。
 
 ## 第三章：鼻孔交替呼吸法（淨脈呼吸法）
 
@@ -108,7 +108,7 @@
 
 擴張上顎和打開氣道的裝置很多，各有各的好處和壞處。首先，請跟功能性齒顎矯正專科的牙科專家聯絡。
 
-美國東岸可洽伊凡斯醫師的Infinity Dental Specialists（ www.infinitydentalspecialists.com ），西岸可洽韓恩醫師的Face Focused（ facefocused.com ）。他們是全美最具聲望的牙科診所，也是很好的起點。至於大西洋對岸，英國人可洽苗麥克醫師的診所 orthodontichealth.co.uk 。
+美國東岸可洽伊凡斯醫師的Infinity Dental Specialists（ www.infinitydentalspecialists.com ），西岸可洽韓恩醫師的Face Focused（ www.facefocused.com ）。他們是全美最具聲望的牙科診所，也是很好的起點。至於大西洋對岸，英國人可洽苗麥克醫師的診所 www.orthodontichealth.co.uk 。
 
 ## 第八章：拙火呼吸法
 
@@ -122,7 +122,7 @@
 - 閉氣到受不了時，先吸一大口氣，再閉氣十五秒。輕輕地把吸進的空氣移往胸腔再到肩膀，然後吐氣並重新開始深層呼吸。
 - 整個過程重複至少三次。
 
-拙火呼吸法需要練習才能上手，看書學可能有難度也不好理解。冰人呼吸法的教練馬基每週一晚上太平洋標準時間九點都會開免費的線上課程。到 www.meetup.com/Wim-Hof-Method-Bay-Area 註冊，或從Zoom平台登錄 tinyurl.com/y4qwl3pm 。馬基也在北加州提供個別指導： www.wimhofmethod.com/instructors/chuckmcgee-iii 。
+拙火呼吸法需要練習才能上手，看書學可能有難度也不好理解。冰人呼吸法的教練馬基每週一晚上太平洋標準時間九點都會開免費的線上課程。到 www.meetup.com/Wim-Hof-Method-Bay-Area 註冊，或從Zoom平台登錄 www.tinyurl.com/y4qwl3pm 。馬基也在北加州提供個別指導： www.wimhofmethod.com/instructors/chuckmcgee-iii 。
 
 拙火冥想法靜心版的教學，可見： www.thewayofmeditation.com.au/revealing-the-secrets-of-tibetan-inner-fire-meditation 。
 
