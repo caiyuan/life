@@ -1,6 +1,6 @@
 # 附錄　各種呼吸法
 
-這些方法的教學影音和更多資訊，都可在mrjamesnestor.com/breath找到。
+這些方法的教學影音和更多資訊，都可在 mrjamesnestor.com/breath 找到。
 
 ## 第三章：鼻孔交替呼吸法（淨脈呼吸法）
 
@@ -22,7 +22,7 @@
 - 再輕輕吸一大口氣，重複以上過程。
 - 持續十到三十回合，甚至更多。
 
-覺得坐著練習變得很輕鬆之後，試著在走路、跑步或做其他輕度運動時練習看看。課程和個別指導，請見http://www.breathingcoordination.ch/training。
+覺得坐著練習變得很輕鬆之後，試著在走路、跑步或做其他輕度運動時練習看看。課程和個別指導，請見 http://www.breathingcoordination.ch/training 。
 
 ## 第五章：共振呼吸法（諧振式）呼吸法
 
@@ -87,7 +87,7 @@
 - 繼續這種平緩有節制的呼吸至少三十秒到一分鐘。
 - 重複所有的步驟六次。
 
-麥基翁的《改變人生的最強呼吸法》（The Oxygen Advantage）提供了減少呼吸的詳細步驟和訓練課程。普提格呼吸法的個別指導，可見www.consciousbreathing.com、www.breathingcenter.com、www.buteykoclinic.com或洽合格的菩提格指導員。
+麥基翁的《改變人生的最強呼吸法》（The Oxygen Advantage）提供了減少呼吸的詳細步驟和訓練課程。普提格呼吸法的個別指導，可見 www.consciousbreathing.com 、 www.breathingcenter.com 、 www.buteykoclinic.com 或洽合格的菩提格指導員。
 
 ## 第七章：咀嚼
 
@@ -102,13 +102,13 @@
 
 **口腔裝置**
 
-值此寫作之際，貝爾弗和同事賽門那提（Scott Simonetti）研發的「預防性口腔裝置」剛拿到美國食品藥物管理局的許可。這個小固定器可裝進下排牙齒，模擬咀嚼壓力。更多相關資訊，請見www.discoverthepod.com及www.drtheodorebelfore.com。
+值此寫作之際，貝爾弗和同事賽門那提（Scott Simonetti）研發的「預防性口腔裝置」剛拿到美國食品藥物管理局的許可。這個小固定器可裝進下排牙齒，模擬咀嚼壓力。更多相關資訊，請見 www.discoverthepod.com 及 www.drtheodorebelfore.com 。
 
 **上顎擴張器**
 
 擴張上顎和打開氣道的裝置很多，各有各的好處和壞處。首先，請跟功能性齒顎矯正專科的牙科專家聯絡。
 
-美國東岸可洽伊凡斯醫師的Infinity Dental Specialists（www.infinitydentalspecialists.com），西岸可洽韓恩醫師的Face Focused（facefocused.com）。他們是全美最具聲望的牙科診所，也是很好的起點。至於大西洋對岸，英國人可洽苗麥克醫師的診所orthodontichealth.co.uk。
+美國東岸可洽伊凡斯醫師的Infinity Dental Specialists（ www.infinitydentalspecialists.com ），西岸可洽韓恩醫師的Face Focused（ facefocused.com ）。他們是全美最具聲望的牙科診所，也是很好的起點。至於大西洋對岸，英國人可洽苗麥克醫師的診所 orthodontichealth.co.uk 。
 
 ## 第八章：拙火呼吸法
 
@@ -122,15 +122,15 @@
 - 閉氣到受不了時，先吸一大口氣，再閉氣十五秒。輕輕地把吸進的空氣移往胸腔再到肩膀，然後吐氣並重新開始深層呼吸。
 - 整個過程重複至少三次。
 
-拙火呼吸法需要練習才能上手，看書學可能有難度也不好理解。冰人呼吸法的教練馬基每週一晚上太平洋標準時間九點都會開免費的線上課程。到www.meetup.com/Wim-Hof-Method-Bay-Area註冊，或從Zoom平台登錄tinyurl.com/y4qwl3pm。馬基也在北加州提供個別指導：www.wimhofmethod.com/instructors/chuckmcgee-iii。
+拙火呼吸法需要練習才能上手，看書學可能有難度也不好理解。冰人呼吸法的教練馬基每週一晚上太平洋標準時間九點都會開免費的線上課程。到 www.meetup.com/Wim-Hof-Method-Bay-Area 註冊，或從Zoom平台登錄 tinyurl.com/y4qwl3pm 。馬基也在北加州提供個別指導： www.wimhofmethod.com/instructors/chuckmcgee-iii 。
 
-拙火冥想法靜心版的教學，可見：www.thewayofmeditation.com.au/revealing-the-secrets-of-tibetan-inner-fire-meditation。
+拙火冥想法靜心版的教學，可見： www.thewayofmeditation.com.au/revealing-the-secrets-of-tibetan-inner-fire-meditation 。
 
 ## 第九到十章：淨化呼吸法
 
 這是我學過最強大的呼吸法，也是最需要全心投入且最難堅持到底的一種。包含四個階段：嗡音吟唱、限制呼吸、定速呼吸（吸氣四秒、閉氣四秒、吐氣六秒、閉氣兩秒），還有最後四十分鐘的猛烈呼吸。
 
-YouTube能找到一些教學影片，但若想學會正確的動作，強烈推薦你找人深入指導。「生活的藝術」有週末工作坊帶新學員練習。更多資訊見www.artofliving.org。
+YouTube能找到一些教學影片，但若想學會正確的動作，強烈推薦你找人深入指導。「生活的藝術」有週末工作坊帶新學員練習。更多資訊見 www.artofliving.org 。
 
 ***
 
@@ -187,5 +187,5 @@ YouTube能找到一些教學影片，但若想學會正確的動作，強烈推�
 - 從嘴巴徹底「呼呼」吐氣，默數到八。
 - 重複至少四次。
 
-威爾在YouTube上有按部就班的教學，點閱數超過四百萬，請見www.youtube.com/watch?v=gz4G31LGyog。
+威爾在YouTube上有按部就班的教學，點閱數超過四百萬，請見 www.youtube.com/watch?v=gz4G31LGyog 。
 
